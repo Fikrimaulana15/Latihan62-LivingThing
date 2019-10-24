@@ -1,0 +1,1 @@
+# Latihan62-LivingThing
